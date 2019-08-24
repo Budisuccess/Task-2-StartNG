@@ -1,2 +1,2 @@
 # Task-2-StartNG
-Part of Task 2 Excercise 
+[Lets go to Twitter](https://twitter.com/BudiNorbertMbua/status/1165262457990000641)
